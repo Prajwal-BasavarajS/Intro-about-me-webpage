@@ -25,6 +25,7 @@ I appreciate you taking the time to read this. I’m always open to new connecti
 Best regards,
 Prajwal B
 
+![Screenshot 2024-08-14 011009](https://github.com/user-attachments/assets/868339d8-ea4e-4bc3-bb46-a53d6876a192)
 
 ![Screenshot 2024-08-12 175345](https://github.com/user-attachments/assets/de226864-ae62-48be-a4f3-dc080b8acc65)
 
